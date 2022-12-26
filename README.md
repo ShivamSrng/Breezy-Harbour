@@ -36,4 +36,12 @@ For smoother operation this all thing can be monitored just by using an app spec
 
 
 
+https://user-images.githubusercontent.com/67229090/209556464-99197cda-deda-43cb-8e57-70b8a6061482.mp4
+
+
+
+https://user-images.githubusercontent.com/67229090/209556930-a1575c6f-38cb-4694-a34e-f5eda9c4f199.mp4
+
+
+
 
